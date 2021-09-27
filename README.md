@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Koustav
+- 👋 Hi, I’m @Koustav, working at NIT Warangal, INDIA
 - 👀 I’m interested in "Photonics Sensors"
 - 🌱
 
